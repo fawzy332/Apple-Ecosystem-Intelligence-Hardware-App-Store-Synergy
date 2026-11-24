@@ -1,0 +1,1 @@
+# Apple-Ecosystem-Intelligence-Hardware-App-Store-Synergy
